@@ -1,0 +1,2 @@
+# jut
+JUTT COMMAND BYPASS.:)
